@@ -1,3 +1,2 @@
 Amanda Knaup
-24
 
